@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Obsidian for Windows addon with top Obsidian for Windows Addon | math-equations + rich-text-editing. Featuring math-equations and rich-text-editing, it's the best
 
 
 
